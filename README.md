@@ -1,1 +1,1 @@
-# Learninng_Maya
+# Learning_Maya
